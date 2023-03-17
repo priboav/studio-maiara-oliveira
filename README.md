@@ -1,1 +1,0 @@
-# studio-maiara-oliveira
